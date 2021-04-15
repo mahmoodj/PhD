@@ -1,1 +1,1 @@
-# PhD
+# PhD Activities
